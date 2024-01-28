@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Stepholotl
+- 👀 I’m interested in learning as much as possible in order to change my career path
+- 🌱 I’m currently learning web developing but I want to get into coding even though it might be harder
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I have a degree in biochemistry, I work as a graphic designer, I'm trying to learn how to work in blender and follow a career path in 3d graphic design but I also want to have alternatives :D
